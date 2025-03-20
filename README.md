@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analytics & Data Science
 - 🌱 I’m currently learning Data Science & AI
 - 💞️ I’m looking to collaborate on Good Projects on data Analytics  
-- 📫 How to reach me ... asimk4356@gmail.com OR https://www.linkedin.com/in/asim-khan-212b03221/
+- 📫 How to reach me  https://www.linkedin.com/in/asim-khan-212b03221/
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
